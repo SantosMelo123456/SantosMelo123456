@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SantosMelo123456
-- 👀 I’m interested in ... tec and
+- 👀 I’m interested in ... tec and ...
   
 - 🌱 I’m currently learning ... how to code
 - 💞️ I’m looking to collaborate on ... the world of news
